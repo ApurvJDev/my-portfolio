@@ -1,0 +1,1 @@
+Directory has images
